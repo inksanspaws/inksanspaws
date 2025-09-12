@@ -2,7 +2,7 @@
 <p>𖥔 [ * My pronouns are <b>They/Vial/Ink</b>. ]</p>
 <p>𖥔 I'm a <b>digital art SFW artist!</b> I'm an asian. I love interacting with a lot of people, everyone is welcome as long as they obtain a friendship and become supportive!</p>
 <p>𖥔 <b>I don't share personal information if we just met.</b> I'm also <b>uncomfortable with feminine nicknames</b> such as babygirl, mamacita, and so on unless you're an exception</p>
-<p>𖥔 I'm random on ponytown when I feel like it, you can see me everywhere in the sonic spot! I'll get along with you and you know what it looks like.</p>
+<p>𖥔 I'm random on ponytown when I feel like it, so find me in the sonic spot! I'll get along with you <b>carefully</b> if we just met.</p>
 <p>𖥔 SOME <b>EXTRA IDENTITIES</b>!!</p>
 
 <img src='https://64.media.tumblr.com/cd497e04cc2f18f44939dc6978b2b26a/9837571aa2ae4681-a3/s2048x3072/7734f4959f72556204a12d437438501549a92868.pnj' style='height: 50px; width; auto; display: flex;'></img><img src='https://64.media.tumblr.com/5aa3a2b16e3705dc572cb292f52c608f/87638002bd078529-8d/s400x600/94b55702c65878e832b9372b4588f5f2ee3c0eb8.pnj' style='height: 50px; width: auto; display: flex;'></img>
