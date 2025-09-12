@@ -5,5 +5,5 @@
 <p>𖥔 I'm random on ponytown when I feel like it, you can see me everywhere in the sonic spot! I'll get along with you and you know what it looks like.</p>
 <img src='https://64.media.tumblr.com/cd497e04cc2f18f44939dc6978b2b26a/9837571aa2ae4681-a3/s2048x3072/7734f4959f72556204a12d437438501549a92868.pnj' style='height: 50px; width; auto;'></img><img src='https://64.media.tumblr.com/5aa3a2b16e3705dc572cb292f52c608f/87638002bd078529-8d/s400x600/94b55702c65878e832b9372b4588f5f2ee3c0eb8.pnj' style='height: 50px; width: auto;'></img>
 <img src='https://64.media.tumblr.com/303cdfc5cba67d965f21fe4e51187bc5/c2a90cdc88b92039-e0/s400x600/ccfd666a5b9932c227eea20c859fe0179a8315c1.pnj' src='height: 50px; width: auto;></img>
-<h3>𖥔 IDENTITY!!!! ^ ^ ^</h3>
+<b>𖥔 IDENTITY!!!! ^ ^ ^</b>
 <img src='https://64.media.tumblr.com/834c472976cff3acafa89f096f0407b4/ce19051a95c21bcf-f4/s2048x3072/5e73be143603258b5b8373a615d9b1fbfce3a853.pnj' style='height: 30px; width: auto;'></img>
