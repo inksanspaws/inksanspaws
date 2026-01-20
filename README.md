@@ -1,3 +1,1 @@
-pest by vylet pony ( music ) <br></br>
-refer to me as they / them <br></br>
-wip ( you have to wait )
+<p> im a very positive person! my name is relic, refer to me as they/them! anyone is allowed to talk to me </p> <p>i havent finished this yet</p>
