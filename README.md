@@ -1,1 +1,1 @@
-<p> im a very positive person! my name is relic, refer to me as they/them! anyone is allowed to talk to me </p> <p> i havent finished this yet, more ideas in my head soon! </p>
+<p> im actually filled with positivity, i havent finished this yet, so more ideas in my head soon! </p>
